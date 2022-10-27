@@ -1,0 +1,5 @@
+- Hello friend , My cybername is Decent u can call me D or whatever u like 
+- I am Currently a Front-end Developer , Full stack soon
+- I play games , guitar and make discord bots/servers
+- Ex Owner of 300K+ members network on Discord
+- Contact me on Discord for any help at Decent#0001
